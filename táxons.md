@@ -1,0 +1,1 @@
+Táxon (plural taxa, em latim, ou táxons, aportuguesado) é uma unidade taxonômica, essencialmente associada a um sistema de classificação científica. O táxon pode indicar uma unidade em qualquer nível de um sistema de classificação: um reino, género e uma espécie são taxa assim como qualquer outra unidade de um sistema de classificação dos seres vivos
